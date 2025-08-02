@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @upsideway
 - 👀 I’m interested in igaming projects
-- 🌱 I’m currently learning ...
+- 🌱 I’m always learning ...
 - 💞️ I’m looking to collaborate on new product launches
 - 📫 How to reach me: comment here
 - 😄 Pronouns: he/him
